@@ -1,2 +1,2 @@
 # .github
-Public organization profile of Kung Fu Apply
+Public organization profile of Kungfu Apply
