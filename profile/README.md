@@ -1,1 +1,1 @@
-Kungfu Apply: We made the Canadian application process easy with the latest AI technology.
+Kungfu Apply: We made the Canadian Visa application process easy with the latest AI technology.
